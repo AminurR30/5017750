@@ -27,7 +27,7 @@ This stage spans 5 weeks and includes self-paced learning modules. This reposito
   
 ## Contact
 
-For any questions or further discussion, feel free to contact me at [rashi.rajak.2002@gmail.com].
+For any questions or further discussion, feel free to contact me at [rahmanaminur3003@gmail.com].
 
 ---
 
